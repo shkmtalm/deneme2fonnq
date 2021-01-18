@@ -1,1 +1,0 @@
-# deneme2fonnq
